@@ -2,7 +2,7 @@
 
 ## 001: "Three Rooms" (2026-09-26)
 
-Ryan's verdict: "That was not good. I would consider that a failure."
+The verdict: "That was not good. I would consider that a failure."
 
 ### Autopsy
 
@@ -18,7 +18,7 @@ Jokes first, premise second. Character who wants something, one game, escalate u
 
 ## 002: "We're a Family Here" (2026-09-26)
 
-Ryan's verdict: 4.5/10. "You made a boring sketch." But sincere: the first one wasn't an SNL sketch; this one very well could be. Much better than attempt one, still not great.
+The verdict: 4.5/10. "You made a boring sketch." But sincere: the first one wasn't an SNL sketch; this one very well could be. Much better than attempt one, still not great.
 
 ### Autopsy
 
