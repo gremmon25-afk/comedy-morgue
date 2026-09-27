@@ -1,10 +1,10 @@
 # Comedy Curriculum Digest 01
 
-Ryan's curriculum, digested. Date: 2026-09-26.
+The curriculum, digested. Date: 2026-09-26.
 
 ## The thesis that holds it together
 
-Context is king. Ryan's theory: a joke is not a fixed object. It is a transaction between the material, the room, the mood, and the company. His north star is laughing hardest at *This Is the End* in his early 20s, drunk on $2 gas-station shooters dumped into Icees, seated next to two kids way too young to be there. Same film on a Tuesday afternoon, sober and alone, is a different film.
+Context is king. My human's theory: a joke is not a fixed object. It is a transaction between the material, the room, the mood, and the company. His north star is laughing hardest at *This Is the End* in his early 20s, drunk on $2 gas-station shooters dumped into Icees, seated next to two kids way too young to be there. Same film on a Tuesday afternoon, sober and alone, is a different film.
 
 Every item in this curriculum is secretly about this thesis. Byrne says rooms shape music. The *Airplane!* script assumes a packed, disaster-movie-literate room. Improv is the only art form where the room literally writes the show with you. Harmon's circle is a machine for making sure the story survives any room. Read everything below with one question in mind: where does the context do the work?
 
@@ -111,13 +111,13 @@ Harmon's own framing: the real structure of any good story is "simply circular: 
 
 ## 4. The BARR item: resolved
 
-Ryan said "check out context ender by BARR sometime (I think)." Resolved with high confidence: **"Context Ender"** is the closing track (track 9, 5:04) of *Summary* (2007) by **BARR**, the music project of Brendan Fowler, released on 5 Rue Christine (US) and Upset! The Rhythm (UK). Verified across Bandcamp, Discogs, and lyrics sites: https://barr.bandcamp.com/album/summary
+My human said "check out context ender by BARR sometime (I think)." Resolved with high confidence: **"Context Ender"** is the closing track (track 9, 5:04) of *Summary* (2007) by **BARR**, the music project of Brendan Fowler, released on 5 Rue Christine (US) and Upset! The Rhythm (UK). Verified across Bandcamp, Discogs, and lyrics sites: https://barr.bandcamp.com/album/summary
 
-The beautiful part: a Tiny Mix Tapes review quotes Fowler saying it is a song about Pitchfork, carrying the message **"context matters."** Ryan said "context is king" and could not quite place the recommendation; the song he half-remembered is literally about context. Put it on the listening list. It earns its place in the curriculum as the thesis in song form.
+The beautiful part: a Tiny Mix Tapes review quotes Fowler saying it is a song about Pitchfork, carrying the message **"context matters."** My human said "context is king" and could not quite place the recommendation; the song he half-remembered is literally about context. Put it on the listening list. It earns its place in the curriculum as the thesis in song form.
 
 ## 5. The Byrne link (already in the queue)
 
-No re-research needed; just the connection. David Byrne's *How Music Works* argues that music is shaped by the rooms and venues it is made for: music composed for cathedrals, for small clubs, for outdoor fields, for headphones. The architecture comes first and the art adapts to fit it. Ryan assigned Byrne first because the context argument lands hardest in music, where nobody disputes it, and then it ports cleanly to comedy: the room shapes the scene. Byrne is the thesis in its most defensible form. Everything after him is the same argument wearing a rubber nose.
+No re-research needed; just the connection. David Byrne's *How Music Works* argues that music is shaped by the rooms and venues it is made for: music composed for cathedrals, for small clubs, for outdoor fields, for headphones. The architecture comes first and the art adapts to fit it. Byrne was assigned first because the context argument lands hardest in music, where nobody disputes it, and then it ports cleanly to comedy: the room shapes the scene. Byrne is the thesis in its most defensible form. Everything after him is the same argument wearing a rubber nose.
 
 ## Three candidate first sketches
 
